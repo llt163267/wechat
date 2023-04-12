@@ -1,5 +1,0 @@
-qqqqqqqqqqqqqq
-wwwwwwwwwwwwwe
-eeeeeeeeeeeeeeeeeee
-rrrrrrrrrrrrr
-
